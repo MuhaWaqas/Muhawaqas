@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **i am funny**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:muhamm.waqas1@gmail.com</h3>
 <p align="left">
 </p>
 
